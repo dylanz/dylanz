@@ -1,3 +1,1 @@
-### HOLA
-- 📫 How to reach me: dylans @ gmail
-- 
+📫 How to reach me: dylans @ gmail
